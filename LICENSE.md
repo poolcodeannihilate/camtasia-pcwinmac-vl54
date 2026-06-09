@@ -1,4 +1,4 @@
-# 
+# VIP Camtasia preajustes para Mac OS | Turbo Camtasia preajustes para PC Windows. Con captura multisource y corte automático — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
